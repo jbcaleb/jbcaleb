@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Caleb!
+- 👀 I’m interested in Cybersecurity!
+- 🌱 I’m currently learning Computer Science Principles!
+- 📫 How to reach me? Discord: Leyi#6048
